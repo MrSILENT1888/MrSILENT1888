@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @kunal_476 / kunalkdj176@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: whatever i sa it becomes truth
+- ⚡ Fun fact: whatever i say it becomes truth
 
 <!---
 MrSILENT1888/MrSILENT1888 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
